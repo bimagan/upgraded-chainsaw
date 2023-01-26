@@ -1,2 +1,0 @@
-# upgraded-chainsaw
-pengiriman barang
